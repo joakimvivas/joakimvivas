@@ -1,7 +1,5 @@
 ## 👉 Who is Joakim Vivas?
 
-<center><img src="https://joakimvivas.com/images/JoakimVivas-Avatar-white.png" width="50%" alt="Joakim Vivas"></center>
-
 I'll tell you right off the bat that **I'm from '83 and I studied EGB** (it seems like a lie), I live in Sant Cugat del Vallès although I was born in Barcelona.
 
 **I like to read and several books have left their mark on me** but, without a doubt, a phrase taken from the book "[The 5 AM Club](https://amzn.to/2GdFhYk)" made sense: **“Never stop improving”** Here I am, constantly improving to grow as a professional and as a person.
